@@ -1,4 +1,4 @@
-# Dynasty Scrolls Hack | Free Golds and Diamonds Cheats [MOD APK|For Android/IOS]
+# Dynasty Scrolls Hack | Free Golds and Coins Cheats [MOD APK|For Android/IOS]
 
 VISIT THIS LINK TO GET YOUR FREE RESOURCES: https://opgamers.net/dynastyscrolls/
 
@@ -10,10 +10,10 @@ Dynasty scrolls is one among the foremost awaited mobile game of 2020. YOOZOO (G
 
 Dynasty Scrolls are going to be released in both IOS and Android platforms and our Dynasty Scrolls Hack works whatever device you employ . It’s a simple process even your grandma can’t do. No need for special technical skills like most of the Dynasty Scrolls Mods out there requires. This Dynasty Scrolls Cheats is all you would like to stay up with whale players.
 
-How to Hack Dynasty Scrolls for Free Golds & Diamonds [NO MOD APK REQUIRED]
+How to Hack Dynasty Scrolls for Free Golds & Coins [NO MOD APK REQUIRED]
 
 Dynasty Scrolls are going to be a card based game with tons of customization options and a good array of PVP and PVE game modes like Seiges, Raids, Warrior Trials, and Overlord Battles. This game will surely keep you busy and your wallet empty. So if you would like help with the spending problem, then confirm to see out our Dynasty Scrolls Cheats.
 
-This Dynasty Scrolls Free Hack will offer you unlimited free golds & diamonds during a just a couple of clicks. it's going to be hard to believe but I suggest to only test it out yourself. It’s a free cheats so you don’t don't have anything to lose. this is often often not some Dynasty Scrolls Cheat Codes this is an automatic web based process that why you don’t got to download any Dynasty Scrolls MOD APK which may harm your device specially if you don’t know what you're doing.
+This Dynasty Scrolls Free Hack will offer you unlimited free golds & Coins during a just a couple of clicks. it's going to be hard to believe but I suggest to only test it out yourself. It’s a free cheats so you don’t don't have anything to lose. this is often often not some Dynasty Scrolls Cheat Codes this is an automatic web based process that why you don’t got to download any Dynasty Scrolls MOD APK which may harm your device specially if you don’t know what you're doing.
 
-So what are you expecting . If you would like to be the simplest during this game, then you actually need Dynasty Scrolls Free golds & diamonds. Without this, your wallet will surely cry. It’s a simple process takes but 5 minutes to try to to . Works on both Android and IOS and works on every server.
+So what are you expecting . If you would like to be the simplest during this game, then you actually need Dynasty Scrolls Free golds & coins. Without this, your wallet will surely cry. It’s a simple process takes but 5 minutes to try to to . Works on both Android and IOS and works on every server.
